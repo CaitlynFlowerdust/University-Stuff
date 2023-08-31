@@ -1,0 +1,44 @@
+# Macbeth Notes
+## August
+### Thursday 31st August 2023
+**Video 1 - Notes**
+- Set in Scotland
+- Starts with three witches plotting
+- They plan to meet Macbeth after the "hurly-burly's done" (the battle is over)
+- Macbeth is a Scottish lord
+- He's leading the Scottish army against combined forces of Norwegians and Scottish rebels
+- Macbeth fights with valour
+- The enemy runs and Scotland wins
+- Banquo is Macbeth's friend, they leave together
+- Drums sound
+- Witches hear drums
+- They finish the spell
+- Macbeth and Banquo meet the witches
+- Witches say:
+    - All hail Macbeth, Thane of Cawdor
+        - Macbeth does not believe; Thane of Cawdor is alive
+        - Banquo asks if they can see the future
+    - All hail Macbeth, Thane of Cawdor, and one day, King of Scotland
+        - Macbeth is in disbelief
+        - Banquo is supportive of the news
+        - Banquo asks about his future
+    - Hail Banquo, lesser than Macbeth, and greater. Not so happy, yet much happier. Your children will be kings, but you will never be.
+    - So hail Macbeth and Banquo!
+- Witches leave
+- Both are confused of their fortunes
+- Macbeth and Banquo arrive at King Duncan's camp
+- King's Noblemen: Angus, Ross and Lennux.
+- The King already heard of the news
+- King says to call Macbeth, Thane of Cawdor
+- Macbeth is in disbelief as "Cawdor lives"
+- Cawdor joined the rebels and is under sentence of death
+- Macbeth realizes the witches fortune was true, wonders if throne is next
+- Banquo is unsure
+- King arrives
+- They celebrate victory
+- King is grateful to Macbeth and Banquo, they both stay humble
+- King announces his eldest son, Malcolm, to be his successor.
+    - "He is now to be known as Prince of Cumberland."
+- Macbeth is disturbed by the news, realizing it'll cause problems for him being king
+- King wants to go to Macbeth's castle
+- Macbeth goes ahead of them
